@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on online course
 - 📫 How to reach me at maddikerapoojitha@gmail.com
 - 😄 Pronouns: pooji
-- ⚡ co-founder: SPARKUP
+- ⚡ Co-founder: SPARKUP
   
 
 <!---
